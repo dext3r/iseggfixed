@@ -8,3 +8,5 @@
 
 <p>EVERY DAY I AM CHECKING EGG PRICE AND PRICE IS BAD FOREVER??</p>
 <h2>CAN DEV DO SOMETHING???</h2>
+
+<h1>Nov 2024 we are $3.649 for 12 beautiful egg. (Ask FRED about it)</h1>
